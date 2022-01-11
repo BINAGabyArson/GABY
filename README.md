@@ -1,2 +1,0 @@
-# GABY
-Jeick design
